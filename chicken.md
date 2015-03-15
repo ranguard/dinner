@@ -2,3 +2,4 @@
 * Roast chicken
 * Chicken currey
 * Chicken & noodles
+* Chicken, rosmary & garlic saute - and brown rice
