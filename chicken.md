@@ -3,3 +3,5 @@
 * Chicken currey
 * Chicken & noodles
 * Chicken, rosmary & garlic saute - and brown rice
+* Chicken pasta bake: http://www.taste.com.au/recipes/28003/chicken+pasta+bakes?ref=collections,kid-friendly
+* 
