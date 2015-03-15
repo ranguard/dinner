@@ -2,6 +2,7 @@
 ## Chicken
 
 * Chicken in a pot ( put veg and chicken in pot, boil, make gravey from liquid )
+* Chicken chasseur
 * Roast chicken
 * Chicken currey
 * Chicken & noodles
