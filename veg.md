@@ -9,3 +9,8 @@
 * Macaroni cheese (or pasta with cheesey sauce, so not stringy) + wheatabix? - http://www.delish.com/cooking/g1372/quick-kids-dinner-recipes/?slide=9
 * Aubergine parmijarna
 * Ratatouie
+* Refried beans foldover ( River Cottage, Veg - page 190)
+* Tempaura veg ( river cottage, Light - page 272 )
+* New potatoes, asparagus & eggs roasted ( river cottage, Light - page 294 )
+* 
+* 
